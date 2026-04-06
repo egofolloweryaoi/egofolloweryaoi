@@ -5,7 +5,7 @@
 <div align="center">
 
 
-<p align="center"> ${\textsf{\color{#73acce}recovering from something, preferebly iwc if you are a friend unless I interact first }}$ 
+<sup> ${\textsf{\color{#84a8d8}recovering from something, preferebly iwc if you are a friend unless I interact first }}$ </sup>
 &nbsp;
 
 
