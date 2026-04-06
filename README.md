@@ -5,7 +5,7 @@
   
 ## ${\textsf{\color{#244885} - }}$
 
-<sup> ${\textsf{\color{#84a8d8}recovering from something, interact eith caution unless i do. }}$ </sup>
+<sup> ${\textsf{\color{#84a8d8}recovering from something, interact with caution unless i do. }}$ </sup>
 &nbsp;
 <br>
 
