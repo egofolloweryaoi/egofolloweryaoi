@@ -1,4 +1,6 @@
+<div align="center">
 
+> i hate my doomed yuri bru
 <br> 
 <br> 
 <div align="center">
