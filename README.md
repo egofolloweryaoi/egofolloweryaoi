@@ -9,7 +9,10 @@
 
 
 &nbsp;
-<br>
+<br> 
+
+
+[art credit](https://x.com/134958O2)
 
 <img width="600" height="500" alt="image" src="https://file.garden/aZrZgVKh3wfTGmod/IMG_7873.png" />  
 
